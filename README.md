@@ -1,2 +1,0 @@
-# candkhandbagshop
-handbagandshoeshop
